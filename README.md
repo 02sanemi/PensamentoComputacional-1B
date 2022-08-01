@@ -14,4 +14,14 @@ como quem conta carneiros e amansa
 no entanto flanco aberto não esqueço
 e amo em ti os outros rostos*
 
-!
+
+
+
+
+
+
+
+###### referências
+links: https://www.culturagenial.com/melhores-poemas-literatura-brasileira/
+
+@lizibugalski
